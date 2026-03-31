@@ -1,2 +1,0 @@
-# NNPTUD_Ngay5
-DoThanhDat_2280600571
